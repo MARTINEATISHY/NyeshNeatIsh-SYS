@@ -1,5 +1,5 @@
 🎈
-call me Hwang or nyesh (or any characters i kin!), nicknames freely accepted.
+call me Hwang or nyesh/Murthye (or any characters i kin!), nicknames freely accepted.
 /\
 \/
 
@@ -15,8 +15,10 @@ PS;please go see my kin (HH part) list before commenting too.(for understanding 
 
 -Also,DNGTC means 'do not get too close' !
 
-_pfp not by me
+_pfp made by me!!
 
 IF YOU CAN'T STAND 18+ STUFF DO *NOT* INT.(it's not because I'm being rude, it's for your safety and you might get uncomfortable,i bring that type of topic in random times.)
+
+#Monday,December 30,2024.#
 
 | 🎭 |
