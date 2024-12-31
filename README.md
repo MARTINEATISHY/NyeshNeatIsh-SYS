@@ -2,7 +2,7 @@
 call me Hwang or nyesh/Murthye (or any characters i kin!), nicknames freely accepted.
 /\
 \/
-it/its/he/him/se/fox/wolf pronouns. they/them or any xe/ze/je/we+more pronouns AREN'T acceptable. no.
+it/its/he/him/she/fox/wolf pronouns. they/them or any xe/ze/je/we+more pronouns AREN'T acceptable. no.
 
 ^
 (Please go see my xtwitter/reentry[S] for important cases...)
