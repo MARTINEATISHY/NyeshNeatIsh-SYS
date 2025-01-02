@@ -20,8 +20,10 @@ _pfp made by me!!
 
 IF YOU CAN'T STAND 18+ STUFF DO *NOT* INT.(it's not because I'm being rude, it's for your safety and you might get uncomfortable,i bring that type of topic in random times.)
 
+i do use tone-tags,but only with ppl I'm close with. dw,i get closer to someone about hmmm,1 week!., I'm very clingy tho..,also,any comment about joke like 'you act like a baby', I'll believe it,so don't push me down the cliff,k?
+
 
 >Last updated;;
-**# Tuesday,December 31,2024,17:34. X]**
+**# Tuesday,December 31,2024,22:56. X]**
 
 | 🎭 |
