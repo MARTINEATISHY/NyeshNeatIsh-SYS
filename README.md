@@ -6,4 +6,4 @@ I'm not a therian,Pedophile,racist,toxic,xenophobic,zoophile,comshipper/darkship
 
 >Last updated;; _@ January 6, 2025, Monday, 5:10 pm ..#
 
-| 📱 |
+| 💤 |
